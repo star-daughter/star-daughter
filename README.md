@@ -7,7 +7,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 silly dumbass
 -------------
 
-* 🌍  I'm based in in a dream
+* 🌍  I'm based in a dream
 * ✉️  You can contact me at [pigeon mail](mailto:pigeon mail)
 * 🧠  I'm learning weird snake with a blue-yellow logo
 
